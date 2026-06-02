@@ -111,6 +111,4 @@ structural fix. Grounded in UN humanitarian operations experience. SSRN, 2026.
 
 ## Connect
 
-[LinkedIn](www.linkedin.com/in/jonathantrippettmd
-
-) &nbsp;·&nbsp; [Email](mailto:jrtrippett@gmail.com)
+[LinkedIn](www.linkedin.com/in/jonathantrippettmd) &nbsp;·&nbsp; [Email](JRTrippett@gmail.com)
